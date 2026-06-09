@@ -1,4 +1,4 @@
-
+elite blue lock rivals Scripts is the best blue lock rivals Script, featuring no clip and god mode. Safe and powerful for all your needs.
 
 
 
